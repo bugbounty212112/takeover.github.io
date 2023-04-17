@@ -1,1 +1,1 @@
-# Scribd.github.io
+# takeover.github.io
